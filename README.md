@@ -1,0 +1,1 @@
+# photoshop-mockup-automation
